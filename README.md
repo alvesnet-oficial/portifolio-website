@@ -29,6 +29,4 @@ Rua: Rui Barbosa, 56 – Centro, CEP: 65690-000
 
 Tel: (99) 3552-1885 / (99) 99984-3450 oi
 
-skype: alvesnet
-
 WhatsApp: (99) 99984-3450
